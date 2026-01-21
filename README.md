@@ -1,2 +1,0 @@
-# Natiiviteknologia-Viikko2
-
